@@ -1,0 +1,1 @@
+Ziuretu-serialu-atmintine
